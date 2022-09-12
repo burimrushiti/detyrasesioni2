@@ -1,2 +1,2 @@
 # detyrasesioni2
-Zhgjidhja e detyres nga sesioni i dyte
+Zgjidhja e detyres nga sesioni i dyte
